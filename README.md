@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @NoocaR
+- 👋 Hi, I’m @NoocaR   really RacooN but my username was not avalable.
 - 👀 I’m interested in ... Learning
 - 🌱 I’m currently learning ... Linux after being a Windows users all my life
 - 💞️ I’m looking to collaborate on ... ??
